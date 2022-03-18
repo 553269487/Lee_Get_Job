@@ -23,3 +23,28 @@
 19. [pendo.ai](https://boards.greenhouse.io/pendo/jobs/5549592002/confirmation?t=a6e397752us) 
 20. [Clario]() East Apply
 21. [Ancestry](https://jobs.lever.co/ancestry/d79df222-0bec-4818-8bf5-bb9ce896590f/apply?lever-source=linkedin_limited_listing)
+
+### 3/18 今天是handshake从前到后
+1. [Sentry](https://boards.greenhouse.io/sentry/jobs/3834215/confirmation) 同学一月开始投， sentry 一轮一题OA一轮TECH就过了, 真的太累了。之前简历确实不行，看起来一点也不牛逼。同学虽然简历没什么技术栈但是看起来这个人很牛逼... Handshake又easy apply了
+2. [AutoDesk](https://upenn.joinhandshake.com/stu/postings) handshake
+3. [Attentive]() handshake easy apply
+4. [Google early career](https://www.google.com/about/careers/applications-a/u/0/) 没太看懂啥意思..
+5. [SailPoint]() 投第三遍了好像..
+6. [Brivo](https://brivo.applytojob.com/apply/confirm/hUTG1O4raW?c=s2) 在MD，不知道在哪...
+7. [Advante America]() C++要求
+8. [BaseCap Analytics Inc.]() 1000$一周的sf奇怪公司.
+9. [Savana, Inc.]() 15$ per hour不知道是不是瞎写...
+10. [Office Depot](https://egvv.fa.us6.oraclecloud.com/hcmUI/CandidateExperience/en/sites/CX/my-profile)Full stack web
+11. [Office Depot](https://egvv.fa.us6.oraclecloud.com/hcmUI/CandidateExperience/en/sites/CX/my-profile)SDE in Test
+12. [Varis](https://varis.bamboohr.com/jobs/view.php?id=242&source=aWQ9MTA%3D) handshake上居然显示错了..
+13. [tigerGraph] 显示的是partime..
+14. [Trimble]() ML 投了两个岗位
+14. [Trimble]() 正常开发？
+>下面开始在领英，Handshake刷不到了
+15. [Health Scale](https://jobs.lever.co/health-atscale/35b71726-51bb-49b0-a475-2b575da7efd0/thanks)
+16. [Intuitive](https://careers.intuitive.com/us/en/applythankyou?jobSeqNo=INSUUSJOB744EXTERNALENUS&status=success&jobTitle=Software%20Engineer%20Intern&jobId=JOB744&locale=en_us&candidateId=be62daba-d0d3-4906-93f4-3ae82b797425)
+17. [Varo Bank](https://jobs.lever.co/varomoney/5a0df659-f500-4961-99b7-6b0674206e44/thanks)
+18. [Alcon](https://alcon.wd5.myworkdayjobs.com/en-US/careers_alcon/job/Lake-Forest-California/Summer-2022-Intern---Digital-Software-Engineering_R-2022-12548/apply/autofillWithResume?source=Linkedin) 好像只招bachelor
+19. [Atlassian](https://jobs.lever.co/atlassian/d1ff09b6-1405-450b-8765-ed8306a4e411/thanks) 不知道投没投过，应该投过了
+20. [Informatica](https://informatica.gr8people.com/index.gp?method=cappPortal.showActivityThankYou&opportunityid=32943&syslayoutid=227&actionWorkflowId=236936&SMID=1000934) 开始不挑了按着领英的列表从上往下投.
+21. [genesys](https://genesys.taleo.net/careersection/careersection/candidateacquisition/flow.jsf?step=5)
