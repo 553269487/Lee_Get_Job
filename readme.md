@@ -48,3 +48,5 @@
 19. [Atlassian](https://jobs.lever.co/atlassian/d1ff09b6-1405-450b-8765-ed8306a4e411/thanks) 不知道投没投过，应该投过了
 20. [Informatica](https://informatica.gr8people.com/index.gp?method=cappPortal.showActivityThankYou&opportunityid=32943&syslayoutid=227&actionWorkflowId=236936&SMID=1000934) 开始不挑了按着领英的列表从上往下投.
 21. [genesys](https://genesys.taleo.net/careersection/careersection/candidateacquisition/flow.jsf?step=5)
+
+## 3/22 Birthday. 这么投简历把手投腱鞘炎了...算了吧。
