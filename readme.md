@@ -50,3 +50,13 @@
 21. [genesys](https://genesys.taleo.net/careersection/careersection/candidateacquisition/flow.jsf?step=5)
 
 ## 3/22 Birthday. 这么投简历把手投腱鞘炎了...算了吧。
+## 3/23
+
+[Zoom](https://zoom.wd5.myworkdayjobs.com/en-US/Zoom/userHome?source=upenn.joinhandshake.com) Zoom居然这个月放新岗位出来了...其实TikTok我也可以再新简历投一次。
+
+投了三个。再去投一次TIKTOK得了
+
+[Visa]()手疼了，不弄了
+
+亚麻所谓内推项目速度NO LONGER UNDE CONSIDERTAION。 LOL。 Fuck them
+
